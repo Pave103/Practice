@@ -1,0 +1,6 @@
+![image](https://github.com/Pave103/Practice/assets/120082937/1932c9a8-c838-4ddd-ab11-ea715dc92320)
+![image](https://github.com/Pave103/Practice/assets/120082937/499103b4-ca2a-4fbb-93a8-c3d73f3393ad)
+![image](https://github.com/Pave103/Practice/assets/120082937/32856db0-07c1-488b-bd41-fe6f50e4820c)
+![image](https://github.com/Pave103/Practice/assets/120082937/10259669-2ce2-430e-8159-1cf458aa5f23)
+![image](https://github.com/Pave103/Practice/assets/120082937/0ff16d33-35ad-46c7-b584-2f73c296bf29)
+![image](https://github.com/Pave103/Practice/assets/120082937/3d475d63-0d7d-4111-94d8-76d509cc8864)
